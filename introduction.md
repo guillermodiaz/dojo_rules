@@ -1,0 +1,2 @@
+Guillermo Diaz Gallego
+Me destaco por ser responsable, recursivo, creativo, con sentido de pertenencia y liderazgo, poseo gran experiencia en el desarrollo de aplicaciones y levantamiento de requerimientos, soy flexible a los cambios y me adapto con facilidad al trabajo en equipo buscando siempre la mejora en las tareas desempeñadas.
